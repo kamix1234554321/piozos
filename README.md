@@ -1,1 +1,1 @@
-# piozos
+# mcgry.net.pl
